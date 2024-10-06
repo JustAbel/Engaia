@@ -27,3 +27,5 @@ Maanden passeren zonder veel nieuwe informatie, totdat ze op zekere Descrescens,
 
 ### Scenes
 * [[De Leonin's Blessing|De Leonin's Blessing]]
+* [[Gokken loont niet, tenzij...|Gokken loont niet, tenzij...]]
+* 
