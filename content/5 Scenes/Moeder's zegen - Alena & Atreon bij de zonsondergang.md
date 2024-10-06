@@ -1,0 +1,6 @@
+---
+share: true
+---
+Atreon tijdens het gesprek [[Start van de Dubbele Doorstart|Start van de Dubbele Doorstart]] terug aan zijn jeugd waarin hij met zijn moeder, [[Alena del Stellaris|Alena del Stellaris]] naar de sterrenhemel keek. 
+Z'n moeder vroeg m toen; hoe gaat het met je Atreon? 
+Atreon zegt; opzich wel goed, maar ik heb het gevoel dat ik anders ben dan de rest. Alsof ik niet, net zoals jullie, bij de druidencirkel pas. Z'n moeder antwoordt: "Ik hoop dat je weet dat je altijd een van ons bent. Je jongere broertje [[Xerthas del Stellaris|Xerthas del Stellaris]] is de slimste niet. Ik weet dat er iets in je is dat anders is en dat je vaak wegdroomt wanneer we eigenlijk met de sterren bezig zijn." Uiteindelijk geeft z'n moeder hem haar zegen en akkoord om uit de druïdecirkel te vertrekken en z'n droom na te jagen: De wijde wereld in gaan en alle recepten in de wereld leren. Ze geeft hem nog mee: "Vergeet niet: Wij zijn directe afstammelingen van [[Stella de Ziener|Stella de Ziener]]. En ook al ga jij weg bij de druiden van de sterren. De sterren zullen je nooit verlaten". en ze geeft hem de groet van de druidecirkel mee: *"Bij de wens van de gevallen ster"*
