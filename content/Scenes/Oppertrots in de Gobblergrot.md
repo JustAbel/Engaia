@@ -1,8 +1,8 @@
 ---
 share: true
 ---
-![[Oppertrots in de Gobbler grot battle.jpg|Oppertrots in de Gobbler grot battle.jpg]]
-[[de Kristalliantie|de Kristalliantie]] is naar binnen gesneaked, verkleed als [[Trots|Trots]]. Nog voor de Oppertrots zijn krachten kon gebruiken wist [[Caremfell Arthedain|Caremfell Arthedain]] hem uit te schakelen. [[Tjaart Schemer|Tjaart Schemer]] verloor een spel kaarten, maar wist het geluk naar zijn hand te zetten door zijn tegenstanders uit te schakelen. Tegelijkertijd deelt [[Eleonoir Bagheera|Eleonoir Bagheera]] een goede dosis klappen uit. Tussen alle commotie door weet [[Atreon Del Stellaris|Atreon Del Stellaris]] [[Kleine Gogert|Kleine Gogert]] veilig te stellen. Na het gevecht slaagt hij er in om met het gevonden [[Schaamtekristal|Schaamtekristal]] i.c.m. de [[(Ex)animo|(Ex)animo]] Gogert zijn eetlust te herstellen.
+![[Oppertrots in de Gobbler grot battle.jpg|Oppertrots in de Gobbler grot battle.jpg]][[de Kristalliantie|de Kristalliantie]] 
+is naar binnen gesneaked, verkleed als [[Trots|Trots]]. Nog voor de Oppertrots zijn krachten kon gebruiken wist [[Caremfell Arthedain|Caremfell Arthedain]] hem uit te schakelen. [[Tjaart Schemer|Tjaart Schemer]] verloor een spel kaarten, maar wist het geluk naar zijn hand te zetten door zijn tegenstanders uit te schakelen. Tegelijkertijd deelt [[Eleonoir Bagheera|Eleonoir Bagheera]] een goede dosis klappen uit. Tussen alle commotie door weet [[Atreon Del Stellaris|Atreon Del Stellaris]] [[Kleine Gogert|Kleine Gogert]] veilig te stellen. Na het gevecht slaagt hij er in om met het gevonden [[Schaamtekristal|Schaamtekristal]] i.c.m. de [[(Ex)animo|(Ex)animo]] Gogert zijn eetlust te herstellen.
 
 De helden vinden hier verder nog andere informatie. M.n. die over de locatie van andere kristallen en clues over de whereabouts van [[Genevieve Arthedain|Genevieve Arthedain]] en [[Arcil Arthedain|Arcil Arthedain]].
 
