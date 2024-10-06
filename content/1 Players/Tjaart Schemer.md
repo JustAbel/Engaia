@@ -24,6 +24,7 @@ Totdat er op een dag een messenger van de Domina's voor de deur staat waarna all
 * [[De Pipowagen|De Pipowagen]] (Hij is proficient met landvehicles)
 * [[Bag of Schemer|Bag of Schemer]]
 * [[Mother's Mithril|Mother's Mithril]]
+* [[Rune Bracers|Rune Bracers]]
 
 ### Scenes
 * [[Confrontatie Tjaart en Age|Confrontatie Tjaart en Age]]
