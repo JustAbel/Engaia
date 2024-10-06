@@ -13,7 +13,8 @@ Op deze WIKI lees je van alles over de avonturen op [[Engaia|Engaia]]. Je navige
 | [[Tjaart Schemer|Tjaart Schemer]]       | Pieter Seinen     |
 | [[Caremfell Arthedain|Caremfell Arthedain]]  | Rajiv Gokhale     |
 | [[Atreon Del Stellaris|Atreon Del Stellaris]] | Rowando Schippers |
-| Gamemaster | Abel Spekken |
-Veel leesplezier!
 
+Veel leesplezier en kindest regards,
+
+Abel Spekken
 ![[WhatsApp Image 2024-05-21 at 07.17.44_bec38144.jpg|WhatsApp Image 2024-05-21 at 07.17.44_bec38144.jpg]]
