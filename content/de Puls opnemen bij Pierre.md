@@ -1,0 +1,12 @@
+---
+share: true
+---
+Tijdens hun reis door de stad zien na [[Schaamte in Zwanenrode|Schaamte in Zwanenrode]] ziet [[de Kristalliantie|de Kristalliantie]] dat [[Zwanenrode|Zwanenrode]] weer leeft. Alsof een donkere wolk is verdwenen. Er zijn meer mensen die uitbundiger met elkaar praten en minder soldaten.
+
+Er is een enthousiast roepende man aan het prediken rondom een getekende cirkel: "Hier was het vertel ik je! HIER!!! Hier kwam een straal van licht uit de hemel. Eerst was er niks en toen was er HEMELS licht". De helden besluiten de man aan te moedigen. Atreon doet weer stiekem de spreuk "Moon Beam" waarvan het effect wordt versterkt door [[Caremfell Arthedain|Caremfell Arthedain]] die de grond magisch doet schudden. De gelovige man springt in de moon beam. Wonder boven wonder overleeft de arme man het. De ernstig verbrande en verwarde man ziet dit als een goddelijk teken. [[Tjaart Schemer|Tjaart Schemer]] de kersverse profeet een stukje verder door een illusoire halo boven zijn hoofd te planten in te fluisteren: "Het is nog niet je tijd om te gaan, [[De Dubbele Doorstart|De Dubbele Doorstart]] heeft je nodig!". Enthousiast rent de profeet naar de dubbele dorst om zijn heilige taak te voltooien.  
+
+De helden horen ineens een deur openslaan. Het is [[Pierre van Gent|Pierre van Gent]] van [[Pierre's Potions|Pierre's Potions]]. "Kom binnen vrienden" roept Pierre. Pierre heeft een hoop bijzondere potions. De helden kopen niets, maar Pierre geeft Tjaart een potion of water breathing als 'investering'. Pierre hint dat Tjaart een goed woordje over Pierre moet doen bij [[De Blauwe Lelie|De Blauwe Lelie]]. Caremfell doet de spreuk "detect thoughts" op Pierre. Pierre heeft dit door en raakt geërgerd. Stuurt de helden de winkel uit. 
+
+Atreon verandert in een muis en sluipt de winkel binnen. Hij ontdekt hier een giftige vloeistof dat lijkt op de afvalstof die de helden in het riool van zwanenrode hadden gezien. Atreon weet ook nog een potion mee te stelen, een waardevol drankje; nog een "Potion of Water Breathing". Atreon praat de helden bij. 
+
+Pierre was verantwoordelijk voor het gif in het riool waardoor de ratmensen die er leefden transformeerden in gemuteerde monsters. De helden hebben belangrijk werk in [[Faunaria|Faunaria]] te doen, daarom besluiten ze melding te maken van Pierre's mogelijke misdaden bij [[Sjouke Schemer|Sjouke Schemer]] en het bestuur van de stad.  

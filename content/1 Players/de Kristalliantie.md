@@ -26,8 +26,11 @@ Het avontuur is gestart op 5-1-2024, of de derde Decres in Dracoleo in kyklos 25
 * [[Eerste ontmoeting Ignatia|Eerste ontmoeting Ignatia]]
 * [[Gemuteerde ratten en een groot monster|Gemuteerde ratten en een groot monster]]
 * [[Het verraad van Japheth|Het verraad van Japheth]]
+* [[Scenenaam discplacerhond|Scenenaam discplacerhond]]
 * [[De ontvoering van Tom Domina|De ontvoering van Tom Domina]]
 * [[Heist van Domina Mansion|Heist van Domina Mansion]]
 * [[Verraders in de Universiteitstoren|Verraders in de Universiteitstoren]]
 * [[Helden versus Trix|Helden versus Trix]]
+* [[De dank van Zwanenrode|De dank van Zwanenrode]]
+* [[de Puls opnemen bij Pierre|de Puls opnemen bij Pierre]]
 * 

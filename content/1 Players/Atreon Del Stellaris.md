@@ -31,7 +31,8 @@ Uiteindelijk kwam hij aan in de stad Zwanenrode om te leren van [[Siem en Iesa|S
 
 ### Scenes (& dromen)
 * [[Afscheid Grega|Afscheid Grega]]
-* [[Herinnering gesprek Alena & Atreon|Herinnering gesprek Alena & Atreon]]
+* [[Moeder's zegen - Alena & Atreon bij de zonsondergang|Moeder's zegen - Alena & Atreon bij de zonsondergang]]
+* [[Start van de Dubbele Doorstart|Start van de Dubbele Doorstart]]
 Dromen:
 * [[De Wolf en de Beer|De Wolf en de Beer]]
 * [[Vallend van een waterval|Vallend van een waterval]]
