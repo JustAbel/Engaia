@@ -7,7 +7,7 @@ Toen [[de Kristalliantie|de Kristalliantie]] hier de eerste keer doorheen trok k
 
 ![[Rioolgevecht.jpg|Rioolgevecht.jpg]]
 
-Tijdens dit gevecht vertrokken de helden echter niet met lege handen; zij waren weer herenigd met [[Characters/Siem en Iesa|Characters/Siem en Iesa]], helaas nog wel in tweekoppige ratvorm.
+Tijdens dit gevecht vertrokken de helden echter niet met lege handen; zij waren weer herenigd met [[Siem en Iesa|Siem en Iesa]], helaas nog wel in tweekoppige ratvorm.
 
 [[Gemuteerde ratten en een groot monster|Gemuteerde ratten en een groot monster]]
 

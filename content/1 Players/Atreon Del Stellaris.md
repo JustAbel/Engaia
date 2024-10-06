@@ -21,7 +21,7 @@ Na het slagen ging Atreon op pad richting het Gobblerskamp, waar hij ingewijd we
 
 Het leven na het Gobblerskamp nam een duistere wending. Na het verlaten van kamp sloot Atreon zich aan bij een gezelschap die een mysterie rond een vervuild meer gingen verkennen. Atreon wilde graag helpen en de nieuwe ervaring leek hem ook uitdagend. Door overmoed zagen ze niet aankomen dat de bandieten zich hadden verstopt en in een hinderlaag lagen. Met geluk konden Atreon en [[Nisander backstory Atreon|Nisander backstory Atreon]], de onervaren fighter nog net vluchten, maar de rest van de party niet.
 
-Uiteindelijk kwam hij aan in de stad Zwanenrode om te leren van [[Characters/Siem en Iesa|Characters/Siem en Iesa]] . De eigenaren van [[De Dubbele Dorst|De Dubbele Dorst]] , de Taverne die bekend staat om hun ultiem lekkere drankjes die ze zelf maken. Totdat hij bij [[de Kristalliantie|de Kristalliantie]]
+Uiteindelijk kwam hij aan in de stad Zwanenrode om te leren van [[Siem en Iesa|Siem en Iesa]] . De eigenaren van [[De Dubbele Dorst|De Dubbele Dorst]] , de Taverne die bekend staat om hun ultiem lekkere drankjes die ze zelf maken. Totdat hij bij [[de Kristalliantie|de Kristalliantie]]
 
 ![[Beast Forms Atreon.jpg|Beast Forms Atreon.jpg]]
 ## Items
