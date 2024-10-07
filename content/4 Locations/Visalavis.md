@@ -2,7 +2,7 @@
 share: true
 ---
 ![[IMG-20241003-WA0028.jpg|IMG-20241003-WA0028.jpg]]
-Het prachtige aan [[zee tussen Visalavis en Faunaria|zee tussen Visalavis en Faunaria]] gelegen land op [[Engaia|Engaia]]. 
+Het prachtige aan [[de Gebroken Zee|de Gebroken Zee]] gelegen land op [[Engaia|Engaia]]. 
 
 Met een historie van verschillende en exotische vogelsoorten, wordt dit ook wel het vogelrijk genoemd. 
 
