@@ -1,7 +1,7 @@
 ---
 share: true
 ---
-Na [[Gemuteerde ratten en een groot monster|Gemuteerde ratten en een groot monster]] en de [[Heist van Domina Mansion|Heist van Domina Mansion]] rust [[Caremfell Arthedain|Caremfell Arthedain]] verdient goed uit. Tijdens zijn nachtrust wordt hij echter gestoord door een visie/nachtmerrie, geprompt door zijn patron/god [[Joki|Joki]].
+Na [[Gemuteerde ratten en een groot monster|Gemuteerde ratten en een groot monster]] en de [[De mislukte heist en geslaagde bestorming van Domina Mansion|De mislukte heist en geslaagde bestorming van Domina Mansion]] rust [[Caremfell Arthedain|Caremfell Arthedain]] verdient goed uit. Tijdens zijn nachtrust wordt hij echter gestoord door een visie/nachtmerrie, geprompt door zijn patron/god [[Joki|Joki]].
 
 Na het lang dragen van een masker heeft Caremfell zichzelf al lang niet meer gezien. Hij heeft zich natuurlijk wel in reflecties gezien, maar altijd met een masker of verkleed als iemand anders, zoals [[Opa Papi|Opa Papi]] of een [[Trots|Trots]]cultist.
 
