@@ -1,7 +1,7 @@
 ---
 share: true
 ---
-[[Atreon Del Stellaris|Atreon Del Stellaris]] vindt zich tijdens een welverdiende nachtrust na [[Gemuteerde ratten en een groot monster|Gemuteerde ratten en een groot monster]] en de [[Heist van Domina Mansion|Heist van Domina Mansion]] opnieuw in de omgeving van zijn eerdere droom: [[De Wolf en de Beer|De Wolf en de Beer]]. 
+[[Atreon Del Stellaris|Atreon Del Stellaris]] vindt zich tijdens een welverdiende nachtrust na [[Gemuteerde ratten en een groot monster|Gemuteerde ratten en een groot monster]] en de [[De mislukte heist en geslaagde bestorming van Domina Mansion|De mislukte heist en geslaagde bestorming van Domina Mansion]] opnieuw in de omgeving van zijn eerdere droom: [[De Wolf en de Beer|De Wolf en de Beer]]. 
 
 Ditmaal voelt hij zich al comfortabel in deze duistere omgeving. In plaats van omsingeld te zijn door zijn familieleden van [[De Constellatie|De Constellatie]], staan zij ditmaal in 2 rijen langs elkaar toe te kijken. 
 
