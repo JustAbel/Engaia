@@ -61,7 +61,7 @@ Furcomantis (Furcifer - Latijn voor kameleon + Mantis - Grieks voor bidsprinkhaa
 | 1   |                                 |          |           |             |      |           |       |
 | 2   |                                 |          |           |             |      |           |       |
 | 3   | Eind sessie 15/ start sessie 16 |          |           |             |      |           |       |
-| 4   |                                 |          |           |             |      |           |       |
+| 4   | Eind sessie 16/Start sessie 17  |          |           |             |      |           |       |
 
 Gobligryphus
 

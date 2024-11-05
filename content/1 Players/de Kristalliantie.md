@@ -31,7 +31,10 @@ Het avontuur is gestart op 5-1-2024, of de derde Decres in Dracoleo in kyklos 25
 * [[De ontvoering van Tom Domina|De ontvoering van Tom Domina]]
 * [[De mislukte heist en geslaagde bestorming van Domina Mansion|De mislukte heist en geslaagde bestorming van Domina Mansion]]
 * [[Verraders in de Universiteitstoren|Verraders in de Universiteitstoren]]
-* [[Helden versus Trix|Helden versus Trix]]
+* [[De Grote Theater Showdown|De Grote Theater Showdown]]
 * [[De dank van Zwanenrode|De dank van Zwanenrode]]
 * [[de Puls opnemen bij Pierre|de Puls opnemen bij Pierre]]
+* [[Piraterij is een Miss Drijf|Piraterij is een Miss Drijf]]
+* [[De Tocht Door Hákar's Kaak|De Tocht Door Hákar's Kaak]]
 * 
+
