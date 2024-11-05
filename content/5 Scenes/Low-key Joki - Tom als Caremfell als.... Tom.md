@@ -1,7 +1,7 @@
 ---
 share: true
 ---
-Tijdens [[Helden versus Trix|Helden versus Trix]], of beter gezegd, nét voor de bom losbarstte, speelt [[Caremfell Arthedain|Caremfell Arthedain]] samen met [[Spicy Mayo|Spicy Mayo]] een voorbereid toneelstuk voor de inwoners van [[Zwanenrode|Zwanenrode]]. 
+Tijdens [[De Grote Theater Showdown|De Grote Theater Showdown]], of beter gezegd, nét voor de bom losbarstte, speelt [[Caremfell Arthedain|Caremfell Arthedain]] samen met [[Spicy Mayo|Spicy Mayo]] een voorbereid toneelstuk voor de inwoners van [[Zwanenrode|Zwanenrode]]. 
 
 Terwijl [[De Pipowagen|De Pipowagen]] verhuld als foodtruck met een vermomde [[Tjaart Schemer|Tjaart Schemer]] en [[Atreon Del Stellaris|Atreon Del Stellaris]] achter de stoelen staat, spelen [[De Groenklavers|De Groenklavers]] de sterren van de hemel.
 
@@ -23,4 +23,4 @@ De menigte wordt woedend en springt op, terwijl Caremfell het niet meer lukt om 
 
 Voordat Caremfell gelynched wordt en met hooivorken doorboort, lukt het de helden echter de eerder verkregen explosie af te laten gaan die ze onder de tribune van Trix hadden geplaatst.
 
-In de chaos vlucht de menigte, en blijven er enkel krijgers over, klaar voor [[Helden versus Trix|Helden versus Trix]]
+In de chaos vlucht de menigte, en blijven er enkel krijgers over, klaar voor [[De Grote Theater Showdown|De Grote Theater Showdown]]
