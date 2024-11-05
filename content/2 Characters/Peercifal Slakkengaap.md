@@ -12,4 +12,4 @@ Als kleinzoon van [[Opa Papi|Opa Papi]] en een [[Peerbeek|Peerbeek]]se familie, 
 Oorspronkelijk een slijmerige vijandige snob, maar na het rechtzetten door [[de Kristalliantie|de Kristalliantie]] en een heart to heart met [[Tjaart Schemer|Tjaart Schemer]] nu nog slechts een licht slijmerige, onvijandige, snob.
 
 Verantwoordelijk voor de
-[[Rival Roadblock|Rival Roadblock]] en, tactisch te late, versterking bij [[Helden versus Trix|Helden versus Trix]]
+[[Rival Roadblock|Rival Roadblock]] en, tactisch te late, versterking bij [[De Grote Theater Showdown|De Grote Theater Showdown]]
