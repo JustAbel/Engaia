@@ -15,5 +15,5 @@ Terwijl ze de gildeleiders gevangen hield, acteerde ze ziek te zijn om de rollen
 
 Zo heeft zij zichzelf, gezien de afwezige ruggengraat van Tom, alleenheerser van Zwanenrode weten te maken.
 
-Tijdens [[Helden versus Trix|Helden versus Trix]] weten de [[de Kristalliantie|de Kristalliantie]] gelukkig Trix te ontmaskeren en te verslaan.
+Tijdens [[De Grote Theater Showdown|De Grote Theater Showdown]] weten de [[de Kristalliantie|de Kristalliantie]] gelukkig Trix te ontmaskeren en te verslaan.
 
