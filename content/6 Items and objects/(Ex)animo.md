@@ -7,7 +7,7 @@ Eerste variant is gevonden in [[Gobbler Camp|Gobbler Camp]] en gebruikt (op de a
 
 [[Ignatia Cogswizzle|Ignatia Cogswizzle]] heeft later een nieuwe gebouwd in [[Cogswizzle Crisistoren|Cogswizzle Crisistoren]] om de [[de Kristalliantie|de Kristalliantie]] te helpen de schaamtekristallen hun kracht weer terug te geven aan de slachtsoffers. 
 
-[[Japheth Köder|Japheth Köder]] heeft een Multi-exanimo gemaakt met als doel 400+ bewoners van [[Zwanenrode|Zwanenrode]] in één keer te exanimoen tijdens de theatervoorstelling waar het gevecht [[Helden versus Trix|Helden versus Trix]] plaatsvond. 
+[[Japheth Köder|Japheth Köder]] heeft een Multi-exanimo gemaakt met als doel 400+ bewoners van [[Zwanenrode|Zwanenrode]] in één keer te exanimoen tijdens de theatervoorstelling waar het gevecht [[De Grote Theater Showdown|De Grote Theater Showdown]] plaatsvond. 
 
 
 
