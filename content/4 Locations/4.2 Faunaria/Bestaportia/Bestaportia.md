@@ -15,12 +15,12 @@ Voorbeelden van plekken die bezocht kunnen worden zijn:
 
 | Locatie                  | Functie               | People of interest                               |
 | ------------------------ | --------------------- | ------------------------------------------------ |
-| [[Het Libertarium|Het Libertarium]]      | Boekenwinkel          | [[Bertitia Honingpot|Bertitia Honingpot]], [[Cornelius Stofkap IV|Cornelius Stofkap IV]] |
+| [[Het Libertarium|Het Libertarium]]      | Boekenwinkel          | [[Betty Stofkap|Betty Stofkap]], [[Cornelius Stofkap IV|Cornelius Stofkap IV]] |
 | [[De Platte Poes|De Platte Poes]]       | Taverne               | [[Klaas Kwaak|Klaas Kwaak]],                                 |
 | [[Floraria|Floraria]]             | Botanische tuin       | [[Connie Veer|Connie Veer]]                                  |
 | [[Het Houten Paard|Het Houten Paard]]     | Parel Restaurant      | [[Koe-lin Airgo|Koe-lin Airgo]]                                |
 | [[De Bittere Pil|De Bittere Pil]]       | Apotheek              |                                                  |
-| [[Het Zompige Zakje|Het Zompige Zakje]]    | Theehuis              |                                                  |
+| [[Het Zompige Zakje|Het Zompige Zakje]]    | Theehuis              | [[Ziza Chekatomi|Ziza Chekatomi]]                               |
 | [[De Plaza To Be|De Plaza To Be]]       | Marktplein            | Verschillend                                     |
 | [[UvB|UvB]]                  | Academie              |                                                  |
 | [[Shekvedra|Shekvedra]]            | Omni-tempel           | Verschillend                                     |

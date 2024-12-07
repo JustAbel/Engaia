@@ -55,13 +55,13 @@ Elephapenthes (Elephas + Penthes - Grieks voor panter, een sierlijk roofdier)
 
 Furcomantis (Furcifer - Latijn voor kameleon + Mantis - Grieks voor bidsprinkhaan)
 
-|     |                                 |          |           |             |      |           |       |
-| --- | ------------------------------- | -------- | --------- | ----------- | ---- | --------- | ----- |
-|     | Plena                           | Crescent | Primaequa | Decresecens | Nova | Ultimaqua | Solia |
-| 1   |                                 |          |           |             |      |           |       |
-| 2   |                                 |          |           |             |      |           |       |
-| 3   | Eind sessie 15/ start sessie 16 |          |           |             |      |           |       |
-| 4   | Eind sessie 16/Start sessie 17  |          |           |             |      |           |       |
+|     |                                 |          |           |             |      |                      |       |
+| --- | ------------------------------- | -------- | --------- | ----------- | ---- | -------------------- | ----- |
+|     | Plena                           | Crescent | Primaequa | Decresecens | Nova | Ultimaqua            | Solia |
+| 1   |                                 |          |           |             |      |                      |       |
+| 2   |                                 |          |           |             |      |                      |       |
+| 3   | Eind sessie 15/ start sessie 16 |          |           |             |      |                      |       |
+| 4   | Eind sessie 16/Start sessie 17  |          |           |             |      | Aankomst Bestaportia |       |
 
 Gobligryphus
 
