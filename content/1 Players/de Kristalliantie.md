@@ -36,5 +36,8 @@ Het avontuur is gestart op 5-1-2024, of de derde Decres in Dracoleo in kyklos 25
 * [[de Puls opnemen bij Pierre|de Puls opnemen bij Pierre]]
 * [[Piraterij is een Miss Drijf|Piraterij is een Miss Drijf]]
 * [[De Tocht Door Hákar's Kaak|De Tocht Door Hákar's Kaak]]
+* [[De Eerste Avond in Bestaportia|De Eerste Avond in Bestaportia]]
 * 
+* 
+
 
