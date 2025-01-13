@@ -1,6 +1,7 @@
 ---
 share: true
 ---
+
 [[Character sheet Eleonoir|Character sheet Eleonoir]]
 
 | ![[WhatsApp Image 2024-04-06 at 15.35.33_43c9bbd6.jpg|WhatsApp Image 2024-04-06 at 15.35.33_43c9bbd6.jpg]] | ![[Pasted image 20240927185222.png|Pasted image 20240927185222.png]] |
