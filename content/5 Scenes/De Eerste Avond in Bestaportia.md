@@ -1,8 +1,8 @@
 ---
 share: true
 ---
-Aankomst in Bestaportia  
-  
+Aankomst in [[Bestaportia|Bestaportia]]
+
 De helden arriveren in Bestaportia rondom 2 uur smiddags en besluiten wat ze willen doen  
   
 - De volgende stap zetten in Aidara verslaan  
