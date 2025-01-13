@@ -18,4 +18,6 @@ Hier leven vele dierenvolken samen, in en rondom elkaar.
 | [[Taurox|Taurox]]                                    | Koe/stier (Minotaur)                     | [[Horren|Horren]]                                        |
 |                                               |                                          |                                                   |
 |                                               |                                          |                                                   |
-![[Pasted image 20241114160104.png|Pasted image 20241114160104.png]]
+|                                               |                                          |                                                   |
+|                                               |                                          |                                                   |
+![[Faunaria.png|Faunaria.png]]
