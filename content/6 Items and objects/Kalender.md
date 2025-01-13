@@ -2,7 +2,7 @@
 share: true
 ---
 259
-
+asdad
 Amphisphinx (Amphisbaena - Grieks voor amphisbaena + Sphinx - Grieks voor sphinx)
 
 |   |   |   |   |   |   |   |   |
@@ -43,7 +43,7 @@ Dracoleo (Draco - Latijn voor draak + Leo - Latijn voor leeuw)
 |3||||Start||||
 |4||||||||
 
-Elephapenthes (Elephas + Penthes - Grieks voor panter, een sierlijk roofdier)
+Elephapenthes (Elephas + Penthes - Grieks voor panter, een sierlijk roofdier)asadsa  asd 
 
 |     |                 |                                              |                                          |                                        |                 |                                  |                                         |
 | --- | --------------- | -------------------------------------------- | ---------------------------------------- | -------------------------------------- | --------------- | -------------------------------- | --------------------------------------- |
@@ -55,23 +55,23 @@ Elephapenthes (Elephas + Penthes - Grieks voor panter, een sierlijk roofdier)
 
 Furcomantis (Furcifer - Latijn voor kameleon + Mantis - Grieks voor bidsprinkhaan)
 
-|     |                                 |          |           |             |      |                      |       |
-| --- | ------------------------------- | -------- | --------- | ----------- | ---- | -------------------- | ----- |
-|     | Plena                           | Crescent | Primaequa | Decresecens | Nova | Ultimaqua            | Solia |
-| 1   |                                 |          |           |             |      |                      |       |
-| 2   |                                 |          |           |             |      |                      |       |
-| 3   | Eind sessie 15/ start sessie 16 |          |           |             |      |                      |       |
-| 4   | Eind sessie 16/Start sessie 17  |          |           |             |      | Aankomst Bestaportia |       |
+|     |                                 |          |           |             |      |                      |                      |
+| --- | ------------------------------- | -------- | --------- | ----------- | ---- | -------------------- | -------------------- |
+|     | Plena                           | Crescent | Primaequa | Decresecens | Nova | Ultimaqua            | Solia                |
+| 1   |                                 |          |           |             |      |                      |                      |
+| 2   |                                 |          |           |             |      |                      |                      |
+| 3   | Eind sessie 15/ start sessie 16 |          |           |             |      |                      |                      |
+| 4   | Eind sessie 16/Start sessie 17  |          |           |             |      | Aankomst Bestaportia | Start/Eind sessie 18 |
 
 Gobligryphus
 
-|   |   |   |   |   |   |   |   |
-|---|---|---|---|---|---|---|---|
-||Plena|Crescent|Primaequa|Decresecens|Nova|Ultimaqua|Solia|
-|1||||||||
-|2||||||||
-|3||||||||
-|4||||||||
+|     |                                                                |          |           |             |      |           |       |
+| --- | -------------------------------------------------------------- | -------- | --------- | ----------- | ---- | --------- | ----- |
+|     | Plena                                                          | Crescent | Primaequa | Decresecens | Nova | Ultimaqua | Solia |
+| 1   | Start sessie 19 <br>Afgesproken videobellen met Zwanenrode 10u |          |           |             |      |           |       |
+| 2   |                                                                |          |           |             |      |           |       |
+| 3   |                                                                |          |           |             |      |           |       |
+| 4   |                                                                |          |           |             |      |           |       |
 
 Hydraphoenix (Hydra - Grieks voor hydra + Phoenix - Grieks voor feniks)
 
